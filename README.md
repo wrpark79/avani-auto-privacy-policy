@@ -1,1 +1,1 @@
-# avani-auth-privacy-policy
+# avani-auto-privacy-policy
